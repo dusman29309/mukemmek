@@ -1,0 +1,2 @@
+# mukemmek
+oys gurban sana
